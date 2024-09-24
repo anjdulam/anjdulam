@@ -6,7 +6,7 @@
 
 - 📫 How to reach me **anjalidulam03@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1yQsogLps0Ylbnz11tWGT1Vi-wTGmoLsJ/view?usp=sharing](https://drive.google.com/file/d/1yQsogLps0Ylbnz11tWGT1Vi-wTGmoLsJ/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1CyJZq3AyFm7NVyFvU-s7FwW6popIIvZt/view](https://drive.google.com/file/d/1CyJZq3AyFm7NVyFvU-s7FwW6popIIvZt/view)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
